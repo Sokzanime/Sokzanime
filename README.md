@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning at university
 - 💞️ I’m looking for gaining expierence
 - 📫 Reach me on e-mail milenaurbanik@op.pl 
-- ⚡ Fun fact: I know nothing about IT
+- ⚡ Fun fact: I know nothing about IT but I want to learn it
